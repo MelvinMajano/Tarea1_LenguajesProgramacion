@@ -1,2 +1,2 @@
 Joseph Adrian Alcerro Lopez 
-Majano (Escriba su info aqui xd)
+Melvin Geovanny Majano Muñoz  No.Cuenta:20212030318
